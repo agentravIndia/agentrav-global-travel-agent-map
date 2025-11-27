@@ -78,6 +78,6 @@ If you want early access or to discuss a partnership, we’d love to hear from y
 
 📩 Contact  
 Founder: Raidh Shaaz Waleed  
-India Directory: https://www.agentrav.in  
-Global Platform: https://www.agentrav.com  
+India Directory: https://agentrav.in  
+Global Platform: https://agentrav.com  
 

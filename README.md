@@ -76,11 +76,8 @@ If you want early access or to discuss a partnership, we’d love to hear from y
 
 👉 Get in touch via AgenTrav.in
 
-📩 Contact
-Founder: Raidh Shaaz Waleed Project: AgenTrav
+📩 Contact  
+Founder: Raidh Shaaz Waleed  
+India Directory: https://www.agentrav.in  
+Global Platform: https://www.agentrav.com  
 
-India Directory: agentrav.in
-
-Global Platform: agentrav.com
-
-AgenTrav: Mapping the global travel trade and making it accessible for everyone.
